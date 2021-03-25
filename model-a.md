@@ -1,4 +1,4 @@
-# Model A
+# Model A\*
 
 During the development of Socionics, Aushra Augusta made the important realization that all 8 information elements are present in the human psyche, but each individual information element possesses a different level of strength, priority and awareness in a person. She theorized that there must be a mathematical model of the human psyche which structures the 8 information elements into 8 unique functions of psychological input and output. Thus, in 1978, Model A \(A is short for Augusta\) was created. The information elements cannot be placed arbitrarily, otherwise there would be 40320 \(8! = 40320\) personality types and not 16. The rules for the placement of these information elements, as well as the underlying structure of Model A in general, are determined by the function dichotomies. 
 
