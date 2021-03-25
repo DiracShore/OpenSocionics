@@ -11,5 +11,5 @@
   * [Beta](quadra-values/beta.md)
   * [Gamma](quadra-values/gamma.md)
   * [Delta](quadra-values/delta.md)
-* [Untitled](untitled.md)
+* [Structure of the Socion](untitled.md)
 
