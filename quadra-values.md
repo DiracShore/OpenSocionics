@@ -1,8 +1,6 @@
 # Quadra Values
 
-Irrational Value Dichotomy
-
-Ne/Si Valuing
+## Ne/Si Valuing
 
 * More avoidant of confrontation on average, not wanting to interfere with the people around them \(Si\).
 * Naturally wants to harmonize with, and better appreciate, their present surroundings \(Si\). 
@@ -13,7 +11,7 @@ Ne/Si Valuing
 * Characterized by divergence
   * When you are focused on the present \(Si\), the number of possible options you can take expands \(Ne\).
 
-Ni/Se Valuing
+## Ni/Se Valuing
 
 * More openly confrontational on average, doing what they want, as they see fit \(Se\). 
 * Naturally wants to impact their surroundings, changing it to something they desire \(Se\). 
@@ -24,9 +22,7 @@ Ni/Se Valuing
 * Characterized by convergence 
   * When you are focused on a particular event / outcome \(Ni\), a specific action was / will be required to achieve it \(Se\).
 
-Rational Value Dichotomy
-
-Ti/Fe Valuing
+## Ti/Fe Valuing
 
 * Filters the factual content of the source, separating what is consistent from what is inconsistent \(Ti\).
 * Naturally simplifies their mental understanding into a clear framework \(Ti\).
@@ -40,7 +36,7 @@ Ti/Fe Valuing
   * Integrates social interactions into common emotional space \(Fe\).
   * Integrates factual information into a common framework \(Ti\)
 
-Te/Fi Valuing 
+## Te/Fi Valuing 
 
 * Filters sources from other sources, separating what is reliable from what is unreliable \(Fi\).
 * Modifies their expression according to their attitude towards the interlocutor \(Fi\).
