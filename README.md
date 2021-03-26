@@ -16,5 +16,5 @@ A central concept of Jung’s work which was incorporated into Socionics is the 
 
 ### The Socion
 
-Humans are not merely atomized individuals disconnected from social experience, we need to communicate and cooperate with others for the sake of survival and to reach our full potential as a species. Every human personality perceives reality through a particular lens, providing information to others which they lack and receiving information from others that they lack themselves. One form of information processing alone cannot develop independently without outside input. With the advent of human culture and society, realizing
+Humans are not merely atomized individuals disconnected from social experience, we need to communicate and cooperate with others for the sake of survival and to reach our full potential as a species. Every human personality perceives reality through a particular lens, providing information to others which they lack and receiving information from others that they lack themselves. One form of information processing alone cannot develop independently without outside input. With the advent of human culture and society, realizing the potential of humankind became possible – we all complete each other. That is the meaning of the Socion.
 
