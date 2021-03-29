@@ -2,15 +2,11 @@
 
 ## Si-1
 
-* Highly proficient at improving the quality of their lived experience. 
-* Cultivator of aesthetic and comfortable environments, subtly adapting to them to meet their own internal demands. 
-* Often portrays a cheerful, peaceful temperament.
-* Invests most of their attention towards the enrichment of their sensory experiences. 
+SEIs are proficient at improving the quality of their lived experience by cultivating beautiful and comfortable environments. In the process of adapting to these environments to meet their own internal demands, it is very important for SEIs to maintain a sense of balance. In the face of rapid change, the SEI can unhurriedly dismiss these changes as an obstacle that lies between them and personal satisfaction. SEIs prefer to take the time to appreciate the simple pleasures that life has to offer in the present moment.
 
 ## Fe-2
 
-* Generally portrays a calm bonhomie, taking delight in cheering people up.
-* Friendly, optimistic
+SEIs often portray a jovial, peaceful temperament and invest a significant portion of attention towards maintaining a harmonious social atmosphere. The level of sociability that SEIs have can range from highly sociable in groups of close friends to shy and reserved towards those they are unfamiliar with. Nevertheless, these types take delight in cheering people up with a disarming sweetness.
 
 ## Ni-3
 
