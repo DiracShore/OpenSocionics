@@ -1,12 +1,12 @@
 # Beta
 
-## SeTi \| TiSe\)
+## SeTi \| TiSe
 
-Betas see 
+Betas types generally view reality as fundamentally flawed in its state of nature, a competitive struggle between opposing groups. In accepting this perspective, Betas will diverge into two categories. They will either try to defend the current order or fight to tear down and bring in a new order. Although both groups may have similar or widely different ideologies, it is nonetheless clear that Betas care a lot about power structures and the use of said power toward favorable ends favorable to the group. Moreover, the Beta ST types are more firmly combative in discussions and debates, wanting their understanding win out against all others. This is also somewhat true for Beta NFs that have a developed Super-Id, although the actual proclivity toward challenging others varies.
 
-## NiFe \| FeNi\)
+## NiFe \| FeNi
 
-Betas 
+Betas are most attentive to emotions that carry profound significance, encompassing a wide emotional range of both positive and negative inner states. They are more tolerant of dramatic and negative forms of expression precisely because the focus is not on emotional involvement in the present, but understanding the deeper meaning of what is felt to initiate catharsis. As such, it is common for Beta NF types \(EIE and IEI\) to use the arts and humanities as a medium of emotional expression, as well as some varieties of Beta ST types \(SLE and LSI\) that have a developed Super-Id. Furthermore, Betas are motivated to unify people around a world-changing sense of purpose or vision, viewing people as capable of accomplishing anything with a strong enough movement and cause.
 
 ## SeFe \| FeSe
 
