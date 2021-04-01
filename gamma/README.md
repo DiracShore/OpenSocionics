@@ -2,7 +2,7 @@
 
 ## SeFi \| FiSe
 
-
+Gammas evaluate the character of people from a grounded viewpoint, remaining skeptical that people can change all that much. They are highly selective in their interactions with people, moving toward people they view as having good character and moving away from people they view as having bad character. Although all Gammas are firm and critical in their personal judgments of people, the frequency and volatility of judgments can vary depending on the type. Gammas also highly value personal loyalty and have no issue cutting people off \(or in some cases, getting revenge\) should the person overstep ethical boundaries.
 
 ## NiTe \| TeNi
 
@@ -14,7 +14,7 @@ Gammas are naturally skeptical of structural and systematic ways of interpreting
 
 ## NiFi \| FiNi
 
-Gammas prefer direct and unfiltered communication, ignoring the social ambiance to selectively connect and interact with specific people. They exercising careful scrutiny when forming new relationships with people and are unafraid of telling people like it is if they dislike that person.
+Gammas prefer to selectively interact with people they like, ignoring the social ambiance to communicate directly. They exercise careful scrutiny when forming close relationships with people and are unafraid of telling people like it is, even if what they have to say is harsh. 
 
 
 
