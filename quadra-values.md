@@ -26,7 +26,7 @@
 
 * Filters the factual content of the source, separating what is consistent from what is inconsistent \(Ti\).
 * Naturally simplifies their mental understanding into a clear framework \(Ti\).
-* Strives to act consistently, according to what they believe \(Ti\).
+* Strives to act consistently, according to an objective standard \(Ti\).
 * Wants to preserve the clarity of what they learn from others, ensuring that it fits together with what they already know \(Ti\). 
 * Enjoys environments of free expression \(Fe\). 
 * Naturally expands their interactions to include anyone \(Fe\). 
