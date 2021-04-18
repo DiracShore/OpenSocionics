@@ -14,7 +14,7 @@ When placed in a situation where they are under pressure to take action, ILEs ca
 
 ## Fi-4
 
-Interpreting the personal attitudes, sentiments and feelings of others is an area in which the ILE has difficulty evaluating and is relatively oblivious to. Often, this obliviousness manifests as ILEs not having a clue what level of closeness other people occupy in relation to them. ILEs are fundamentally nonjudgmental people to a fault, finding the degree of personal bias when forming harsh moral imperatives to be ineffective when alternative explanations for a person's behavior exist.
+Interpreting the personal attitudes, sentiments and feelings of others is an area in which the ILE has difficulty evaluating and is relatively oblivious to. Often, this obliviousness manifests as ILEs not having a clue what level of closeness other people occupy in relation to them. ILEs are fundamentally nonjudgmental people to a fault, finding the degree of personal bias when forming harsh moral imperatives to be ineffective when alternative explanations for a person's behavior exist. ILE experience great difficulty with establishing and maintaining close relationships with people over time. They can reach out to acquaintances and unintentionally overstep their personal boundaries, failing to understand how close they are to the person. The inverse problem can also take place among close friends, spending time with anyone who seems to be the most interesting or engaging to them in the moment. ILEs rely on the reactions of others to gauge the appropriateness of their behavior and rarely introspect \(or rather, anticipate\) how other people might feeling internally. If the person is not emotionally open with them and they could not get a positive response out of them, the ILE will does not understand what the problem is and move on to the next person that captures their interest.
 
 ## Si-5
 
@@ -26,7 +26,7 @@ ILEs greatly appreciate an atmosphere of outward optimism and lightheartedness w
 
 ## Ni-7
 
-Although capable of deepening their understanding of a subject, the area of an ILE's expertise typically extends to a broad range of abstract and theoretical topics. ILEs find focusing on the same set of subjects for too long as limiting their ability to think creatively about the subject and will want to move onto something that is more interesting to them. Furthermore, ILEs consciously reject the fatalistic outcomes that refute the potential of their ideas. This type seldom delves into a state of reflection about the future ahead of them, feeling constrained by sticking to only one path in life. To counteract this issue, ILEs are motivated to find a lifestyle that will allow them to pursue their peculiar hobbies with ease.
+Limiting perspectives is the anathema to the ILE's exploratory nature. ILEs find focusing on the same set of subjects for too long as limiting their ability to think creatively and will want to move onto something that is more interesting. Furthermore, ILEs reject negative predictions as, in their view, dismissing the potential of their ideas. This type seldom delves into a state of reflection about the future ahead of them, feeling constrained by sticking to only one path in life. To counteract this issue, ILEs are motivated to find a lifestyle that will allow them to pursue their peculiar hobbies with ease.
 
 ## Te-8
 
