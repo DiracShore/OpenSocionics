@@ -29,4 +29,5 @@
   * [SLI](delta/sli.md)
 * [Structure of the Socion](untitled.md)
 * [Intertype Relations](intertype-relations.md)
+* [Socionics in Practice](socionics-in-practice.md)
 
