@@ -26,7 +26,7 @@ In principle, LIIs want to be able to discover the physical activities that give
 
 ## Te-7
 
-LIIs have a natural preference for carefully deducing logical conclusions from the facts they encounter. When collecting the data necessary to reaffirm these conclusions, the LII will treat ambiguous assortments of data with skepticism and will instead see if they align with the systems they've created. While LIIs can passively collect a dense knowledge base over time, they will be very selective about what facts are used perfect their logical line of reasoning. The LII is primarily more concerned that the rationale for their structure is correct rather than whether or not it is useful.
+LIIs have a natural preference towards carefully deducing logical conclusions from the facts they encounter. When collecting the data necessary to reaffirm these conclusions, the LII will treat ambiguous assortments of data with skepticism and instead see if they align with the systems they've created. While LIIs can passively collect a dense knowledge base over time, they will be very selective about what facts are used perfect their logical line of reasoning. The LII is primarily more concerned that the rationale for their structure is correct rather than whether or not it is useful.
 
 ## Ni-8
 
