@@ -22,7 +22,7 @@ Frequently, ILEs can get so caught up in their hobbies, work and activities that
 
 ## Fe-6
 
-ILEs greatly appreciate an atmosphere of outward optimism and lightheartedness where they can unwind and be themselves in. They are often motivated to present themselves as witty, jovial and animated individuals for the sake of being liked and to incur a positive response from someone. However, ILEs lack the ability to regulate this themselves and can be unaware of whether said something tasteless or obscene. When made aware of this though, they might feel hurt in response to this criticism and tone their behavior down to level of calm friendliness. 
+ILEs greatly appreciate atmospheres of positivity and lightheartedness where they can unwind and be themselves in. They are often motivated to present themselves as witty, jovial and animated individuals for the sake of being liked and try to get positive responses out of people. However, ILEs lack the ability to regulate this themselves and can be unaware of whether said something tasteless or obscene. When made aware of this though, they might feel hurt in response to this criticism and tone their behavior down to level of calm friendliness. 
 
 ## Ni-7
 
@@ -30,5 +30,5 @@ Limiting perspectives is the anathema to the ILE's exploratory nature. ILEs find
 
 ## Te-8
 
-Over the course of their lives, ILEs tend to accumulate a rather dense stockpile of factual information that they can situationally rely on to generate novel solutions to everyday problems. Although, ILEs do not always use their knowledge in this way and are entirely comfortable with learning whatever interests them in the moment, irrespective of its real-world applicability. 
+ILEs actively apply their logic to a wide range of sources, filtering out what seems to be inconsistent and accepting what remains as self-evident. They can make illustrative observations from everywhere, accumulating and remembering a lot of factual data as a result. Despite this, ILEs are not so much interested in applying what they know in real life as they are refining and structuring their perspectives on different topics. For this reason, ILEs can end up annoying people by talking and debating endlessly with people about a variety of useless things. Similarly, in support of their theories, they might select only cite fragments of sources, or otherwise not cite any sources or examples at all, making the argument from pure reason. In this sense, ILEs are not so much experimentalists as they are theorists and hypothesis-builders. The evidence and observations that they gather are intended to substantiate and validate their theories, rather than constructing a hypothesis based on what they have observed.
 
