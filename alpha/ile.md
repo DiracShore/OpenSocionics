@@ -10,7 +10,7 @@ The process by which ILEs formulate and categorize information into a logical st
 
 ## Se-3
 
-When placed in a situation where they are under pressure to take action, ILEs can grudgingly take charge in a position of leadership to resolve a situation. They are aware of the need to be assertive and confrontational when necessary, yet this will almost never be the first choice of action for ILEs as their inclination is to search for a more unconventional and interesting way to deal with a problem. In the presence of a more competitive environment where people are actively focused on accomplishing their goals, ILEs are disinterested in having to acclimate themselves to the fixed standards of competition as to avoid putting themselves under persistent stress. ILEs would much rather seek a more laid-back, soothing haven as a place to retreat to, for the purpose of regaining composure when things get too tough.
+When placed in a situation where they are under pressure to take action, ILEs can grudgingly take charge in a position of leadership to resolve a situation. They are aware of the need to be assertive and confrontational when necessary, yet this will almost never be their first choice. The ILE's preference is to search for alternative options of dealing with a problem that does not involve putting pressure on people. In the presence of a more competitive environment where people are actively focused on accomplishing their goals, ILEs are disinterested in having to acclimate themselves to the fixed standards of competition as to avoid putting themselves under persistent stress. ILEs would much rather seek a more laid-back, soothing haven as a place to retreat to, for the purpose of regaining composure when things get too tough.
 
 ## Fi-4
 
