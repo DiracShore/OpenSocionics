@@ -12,7 +12,7 @@
 
 ### Ni Base
 
-* detached, deliberation
+* detached, deliberation, long pauses in between sentences \(carefully chosen words\),
 
 ### Ni Creative
 
