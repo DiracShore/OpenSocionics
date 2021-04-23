@@ -26,7 +26,7 @@ ESEs enjoy brainstorming in the social atmospheres they create and treat new pos
 
 ## Fi-7
 
-Although very socially oriented people, ESEs pay far more attention to how people express themselves externally and may overlook how individuals actually feel on the inside. In this case, since emotional states that are not outwardly expressed are foreign to them, ESEs often assume that they can mobilize someone into a state of activity through excitement, regardless of what they're feeling internally. Similar to this, ESEs will also prioritize a stance of inclusivity in the communities they are a part of, dismissing their own personal sentiments if it goes against the wishes of others involved.
+Although very socially oriented people, ESEs pay far more attention to how people express themselves externally and may overlook how individuals actually feel on the inside. For this reason, ESE naturally ignore their own personal attitudes towards people as it is far more important to them that others are feeling positive in the moment. This can lead to a recurrent pattern of putting the needs of everyone else before their own. In such instances, ESEs often assume that they can cheer anyone up through fun and exciting activity, irrespective of how they're feeling internally.
 
 ## Se-8
 
