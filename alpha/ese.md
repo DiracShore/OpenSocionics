@@ -6,7 +6,7 @@ ESEs are centrally focused on spreading positive emotionality across the social 
 
 ## Si-2
 
-ESEs direct their attention towards improving the quality of their lifestyles, so that they can use this experience to help others improve their lives as well. This usually manifests in the ESE putting the needs of others ahead of their own, utilizing their kinesthetic aptitude to adjust the physical aspects of the environment to please others. In many cases, ESEs will be drawn to artistic hobbies and pastimes like gardening, cooking or decorating, mainly as an outlet to channel their creative energy.
+ESEs direct their attention towards improving the quality of their lifestyles, so that they can use this experience to help others improve their lives as well. This usually manifests in the ESE utilizing their kinesthetic aptitude to adjust the physical aspects of the environment to please others. In many cases, ESEs will be drawn to artistic hobbies and pastimes like gardening, cooking or decorating, mainly as an outlet to channel their creative energy.
 
 ## Te-3
 
@@ -30,5 +30,5 @@ Although very socially oriented people, ESEs pay far more attention to how peopl
 
 ## Se-8
 
-ESEs commonly portray a gentle and caring quality, but should someone cause conflict or negatively affect others, they can confront the offender and pressure them to stop. Most of the time though, they do not seek to exert any sort of physical control over their environment and see such attempts as disrupting the harmony already present. Although very energetic and tireless individuals, ESEs are in no way inclined to use this energy forcefully and decisively at the expense someone else's failure.
+ESEs commonly portray a gentle and caring quality, but can easily assert themselves should someone cause conflict or negatively affect others. Most of the time though, they do not seek to exert any sort of physical control over their environment and see such attempts as disrupting the harmony already present. Although very energetic and tireless individuals, ESEs are in no way inclined to use this energy forcefully and decisively at the expense someone else's failure.
 
