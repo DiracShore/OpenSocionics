@@ -6,7 +6,7 @@ LIIs are analytical investigators of the structures and principles that ordain t
 
 ## Ne-2
 
-In service of their own abstract thinking, LIIs perceive the multiple avenues of potential that are related to a given idea or concept with delineation and clarity. The LII's orientation is towards the wide range of perspectives of where their logic can be applied across seemingly different cases and circumstances, posing unique thought experiments and theoretical proofs in an effort to encourage people to entertain different points of view. Frequently, LIIs will be guided by their own intellectual curiosity, alternating between expansively drawing upon information from multiple sources to deeply exploring a narrow range of topics.
+In support of their abstract thinking, LIIs perceive the multiple avenues of potential that are related to a given idea or concept with delineation and clarity. They devote great attention and thought to the wide range of perspectives where their logic can be applied, deriving general principles to account for various cases and circumstances. This can include, for instance, proposing unconventional thought experiments and theoretical proofs in an effort to convey different perspectives to people. LIIs commonly have a wide range of intellectual interests, but they are also deeply investigators of a limited range of topics.
 
 ## Fi-3
 
