@@ -2,7 +2,7 @@
 
 ## Si-1
 
-SEIs are proficient at improving the quality of their lived experience by cultivating beautiful and comfortable environments. In the process of adapting to these environments to meet their own internal demands, it is very important for SEIs to maintain a sense of balance. In the face of rapid change, the SEI can unhurriedly dismiss these changes as an obstacle that lies between them and personal satisfaction. SEIs prefer to take the time to appreciate the simple pleasures that life has to offer in the present moment.
+SEIs are readily focused on improving the quality of their lived experience by cultivating beautiful and comfortable environments. In the process of adapting to these environments, it is very important for SEIs to maintain a sense of balance. In the face of rapid change, the SEI can unhurriedly dismiss these changes as an obstacle that lies between them and personal satisfaction. SEIs prefer to take the time to appreciate the simple pleasures that life has to offer in the present moment. SEI devote great attention to their own comfort and the comfort of others
 
 ## Fe-2
 
@@ -22,7 +22,7 @@ Despite sticking to their own comfort zone, SEIs are very receptive to new persp
 
 ## Ti-6
 
-Commonly, the SEI will strive to become more knowledgeable in an intellectual domain of their interest, to the point where they can "prove" their intellect to others. However, SEIs are very aware of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
+Commonly, SEI are drawn to will strive to become more knowledgeable in an intellectual domain of their interest, to the point where they can "prove" their intellect to others. However, SEIs are very aware of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
 
 ## Se-7
 
