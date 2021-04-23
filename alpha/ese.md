@@ -30,5 +30,5 @@ Although very socially oriented people, ESEs pay far more attention to how peopl
 
 ## Se-8
 
-ESEs are normally quite gentle and caring, but are capable of confronting people who are causing conflict or being too negative. Most of the time though, they do not seek to exert any sort of physical control over their environment and see such attempts as disregarding the harmony that is already present. Although very energetic and tireless individuals, ESEs are in no way inclined to use this energy forcefully and decisively at the expense someone else's failure.
+ESEs are normally quite gentle and caring, but are capable of confronting people who are causing conflict or being too negative. Most of the time though, they do not seek to exert any sort of physical control over their environment and see such attempts as disrupting the harmony already present. Although very energetic and tireless individuals, ESEs are in no way inclined to use this energy forcefully and decisively at the expense someone else's failure.
 
