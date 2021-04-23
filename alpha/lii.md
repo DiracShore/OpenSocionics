@@ -22,7 +22,7 @@ LIIs want to be socially accepted by people who consider them to be insightful p
 
 ## Si-6
 
-In principle, LIIs want to be able to discover the physical activities that give them a sense of enjoyment and groundedness in the present. The range of these activities may vary from person to person, though the scope of these activities are therapeutic in nature and require a careful attention to detail. LIIs will typically pursue these activities in great moderation to avoid physical exhaustion. In this sense, it would not be unrealistic some LIIs to have athletic hobbies, as it's not too competitive or physically demanding. However, LIIs can just as easily seclude themselves from an environment such as this if they find it is too overwhelming. LIIs also normally express some confidence in being able to dress tastefully, though it is far more important to them that what they're wearing is physically comfortable.
+LIIs develop by engaging in calming physical activities that give them a sense of enjoyment and groundedness in the present. Their actual level of physical attentiveness can vary though, where in some instances the LII will be meticulously absorbed in a relaxing activity, and in other instances, neglecting their physical space altogether to devote more time for philosophizing. It would also not be unrealistic to see some LIIs having athletic hobbies, as it's not too competitive or physically demanding. As a consequence, the fear of sensory overwhelm can cause LIIs will to pursue these activities in moderation to avoid physical exhaustion. LIIs also normally express some confidence in being able to dress tastefully, though it is far more important to them that what they're wearing is physically comfortable.
 
 ## Te-7
 
