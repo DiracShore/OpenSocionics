@@ -2,7 +2,7 @@
 
 ## Si-1
 
-SEIs are readily focused on improving the quality of their lived experience by cultivating beautiful and comfortable environments. In the process of adapting to these environments, it is very important for SEIs to maintain a sense of balance. In the face of rapid change, the SEI can unhurriedly dismiss these changes as an obstacle that lies between them and personal satisfaction. SEIs prefer to take the time to appreciate the simple pleasures that life has to offer in the present moment, devoting great attention to their own comfort and the comfort of others.
+SEIs are proficient at improving the quality of their lived experience by cultivating beautiful and comfortable environments. In the process of adapting to these environments to meet their own internal demands, it is very important for SEIs to maintain a sense of balance. In the face of rapid change, the SEI can unhurriedly dismiss these changes as an obstacle that lies between them and personal satisfaction. SEIs prefer to take the time to appreciate the simple pleasures that life has to offer in the present moment.
 
 ## Fe-2
 
@@ -14,7 +14,7 @@ While moderately adept at considering possible future outcomes and sticking to a
 
 ## Te-4
 
-SEIs commonly have difficulties with productivity, neither wanting to compromise relaxation, but not wanting to disappoint people work. SEIs will get easily stressed from having to focus extensively on mastering a new skillset. SEIs can also be hopelessly impractical and unskeptical of the ideas they encounter.
+SEIs commonly have difficulties with productivity, neither wanting to compromise relaxation, but not wanting to disappoint people work. SEIs will get easily stressed from having to focus extensively on mastering a new skillset. SEIs can also be hopelessly impractical and unskeptical of the ideas they encounter,
 
 ## Ne-5
 
@@ -22,11 +22,11 @@ Despite sticking to their own comfort zone, SEIs are very receptive to new persp
 
 ## Ti-6
 
-Commonly, the SEI will be drawn to a specific intellectual domain of interest, where they can codify and connect their understanding into a referable system. In some instances, they may feel emboldened to stubbornly adhere to said system when presented with new data, defensively trying to "prove" their intellect to others. However, SEIs are self-conscious of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
+Commonly, the SEI will strive to become more knowledgeable in an intellectual domain of their interest, to the point where they can "prove" their intellect to others. However, SEIs are very aware of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
 
 ## Se-7
 
-In cultivating an environment of blissful enjoyment, SEIs wish to create a haven for themselves to escape from the conflict and aggression in their lives. They very easily tire from combativeness and environments where harsh behavior is commonplace. Occasionally, they can be be taken advantage of as a consequence of their accepting nature and can have difficulty asserting themselves to get their own way.
+In cultivating an environment of blissful enjoyment, SEIs wish to create a haven for themselves to escape from the conflict and aggression in their lives. They very easily tire from combativeness and environments where harsh behavior is commonplace. Occasionally, they can be be taken advantage of as a consequence of their accepting nature and can have difficulty asserting themselves to get their own way. When under prolonged social discomfort, SEIs will be passive-aggressive, suppressing their anger up until it boils over. However, SEIs will just as easily apologize for getting angry in the first place, not wanting to be a source of stress for others.
 
 ## Fi-8
 
