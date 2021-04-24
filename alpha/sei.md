@@ -26,7 +26,7 @@ Commonly, SEI are drawn to will strive to become more knowledgeable in an intell
 
 ## Se-7
 
-In cultivating an environment of blissful enjoyment, SEIs wish to create a haven for themselves to escape from the conflict and aggression in their lives. They very easily tire from combativeness and environments where harsh behavior is commonplace. Occasionally, they can be be taken advantage of as a consequence of their accepting nature and can have difficulty asserting themselves to get their own way. When under prolonged social discomfort, SEIs will be passive-aggressive, suppressing their anger up until it boils over. However, SEIs will just as easily apologize for getting angry in the first place, not wanting to be a source of stress for others.
+In cultivating an environment of blissful enjoyment, SEIs wish to create a haven for themselves to escape from the conflict and aggression in their lives. They very easily tire from combativeness and environments where harsh behavior is commonplace. Occasionally, they can be be taken advantage of as a consequence of their accepting nature and can have difficulty asserting themselves to get their own way.
 
 ## Fi-8
 
