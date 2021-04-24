@@ -22,7 +22,7 @@ Despite sticking to their own comfort zone, SEIs are very receptive to new persp
 
 ## Ti-6
 
-Commonly, SEI are drawn to will strive to become more knowledgeable in an intellectual domain of their interest, to the point where they can "prove" their intellect to others. However, SEIs are very aware of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
+Commonly, the SEI will be drawn to a specific intellectual domain of interest, where they can codify and connect their understanding into a referable system. In some instances, they may feel emboldened to stubbornly adhere to said system when presented with new data, defensively trying to "prove" their intellect to others. However, SEIs are self-conscious of their inadequacies in this area and can be quite hard on themselves if they think they have made a mistake.
 
 ## Se-7
 
