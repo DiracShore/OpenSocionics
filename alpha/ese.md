@@ -2,7 +2,7 @@
 
 ## Fe-1
 
-ESEs are centrally focused on spreading positive emotionality across the social groups they inhabit. In affecting their surroundings, ESEs exercise great care to ensure that everyone is comfortable and cared for. ESEs derive great satisfaction from cheering people up, boisterously raising the mood and energizing everyone involved. The demeanor of the ESE is generally cheerful, gregarious and ebullient, though they can come off to others who are less interested in their messages as overbearing and intrusive. However, this is simply not the case, as the ESE simply cares for their loved ones so much that they cannot see them excluded from the environments of fun and excitement that they strive to promote.
+ESEs are vibrant optimists devoted to spreading positivity across the social groups they inhabit. In affecting their surroundings, ESEs exercise great care to ensure that everyone is comfortable and cared for. ESEs derive great satisfaction from cheering people up, boisterously raising the mood and energizing everyone involved. The demeanor of the ESE is generally cheerful, gregarious and ebullient, though they can come off to others who are less interested in their messages as overbearing and intrusive. However, this is simply not the case, as the ESE simply cares for their loved ones so much that they cannot see them excluded from the environments of fun and excitement that they strive to promote.
 
 ## Si-2
 
